@@ -8,7 +8,7 @@ Stuff that keep me up in the day:
 - What to have for lunch.
 
 Stuff that keep me up at night:
-- Philosophies on how to live a good life, and a life worth living. I'm mostly in favor of Stoicism, although I've taken a Buddhist bent of late.
+- How to live a good life, and a life worth living. I'm mostly in favor of Stoicism, although I've taken a Buddhist bent of late.
 - Thinking clearly, widely and deeply, or at least learning how + trying to do so.
 - Dungeons and Dragons with the boys.
 - That coffee I had at 4pm, and the caffeine that's still circulating through my veins.

@@ -1,4 +1,4 @@
-# WilburthePiggy in a Nutshell
+# In a Nutshell
 Hello there! Alexander here. I'm a roboticist by training, and working on a Masters in IC Design, and now doing research into structural batteries. 
 
 Stuff that keep me up in the day:
